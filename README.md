@@ -1,0 +1,2 @@
+# premium-ceramic-glazing-001-ceramic-glazing-kiln-firing
+Tired of hunting through sticky notes, forgotten notebooks, and browser tabs to find that one perfect glaze recipe? Your ceramic studio deserves a better system.  The Ceramic Glazing &amp; Kiln Firing Recipe Database - Notion Template transforms scattered experiments into a searchable, organized library. It’s the only template built specifically for ce
